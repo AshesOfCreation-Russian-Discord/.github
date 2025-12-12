@@ -5,9 +5,9 @@
 
 🔗 Наш Discord:
 
-**[discord.gg/QZHPCB2N](discord.gg/QZHPCB2N)**
+**[https://discord.gg/QZHPCB2N](https://discord.gg/QZHPCB2N)**
 
-**[discord.gg/QZHPCB2N](discord.gg/QZHPCB2N)**
+**[https://discord.gg/QZHPCB2N](https://discord.gg/QZHPCB2N)**
 
 ![screenshot](https://i.ytimg.com/vi/i9iH-1cm8Ys/maxresdefault.jpg)
 
@@ -23,7 +23,7 @@
 
 🌍 Если ты играешь в Ashes of Creation и ищешь русское комьюнити — присоединяйся:
 
-🔗 **[discord.gg/QZHPCB2N](discord.gg/QZHPCB2N)**
+🔗 **[https://discord.gg/QZHPCB2N](https://discord.gg/QZHPCB2N)**
 
 Новые участники всегда приветствуются — вместе мы построим своё место в мире Верры!
 
